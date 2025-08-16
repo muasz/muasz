@@ -30,7 +30,7 @@ Currently open to **freelance gigs** & **collaborations**.
 ---
 
 ## 📫 Get In Touch
-- 📧 Email: [muasz@email.com](mailto:muasz@email.com)  
+- 📧 Email: [mr.muasz04@email.com](mailto:mr.muasz04@email.com)  
 - 💬 WhatsApp: [+62-xxx-xxxx-xxxx](https://wa.me/62xxxxxxxx)  
 - 🎥 TikTok: [@muasz.dev](https://tiktok.com/@muasz.dev)
 
